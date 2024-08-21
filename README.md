@@ -15,6 +15,7 @@
 - 📫 How to reach me **tarifferdous@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
+tarifferdous@gmail.com
 <p align="left">
 </p>
 
